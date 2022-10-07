@@ -9,3 +9,8 @@ Vår leveringsevne er database- og teknologidrevet. Vi har unik kunnskap om segm
 <b>Icon Media Group har tre forretningsområder, alle etablert som selvstendige selskaper:</b>
 
 ![image](https://user-images.githubusercontent.com/54305689/194513133-4fe30dd0-84b2-4cca-bc56-e3032c58822a.png)
+
+&nbsp; &nbsp; &nbsp; &nbsp; 
+https://www.iconbusiness.training/ &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp;
+https://www.iconbusiness.media/ &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;
+https://www.iconbusiness.solutions/
