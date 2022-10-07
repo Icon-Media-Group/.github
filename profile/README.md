@@ -1,4 +1,4 @@
-![image](https://user-images.githubusercontent.com/54305689/194513258-85666be2-e921-42f0-8db6-ba145ebac7e7.png)
+![image](https://user-images.githubusercontent.com/54305689/194561274-37883623-4ea6-424b-aae3-be304a5229f2.png)
 
 Icon Media Group er et teknologi- og medieselskap, som tilbyr produkter og tjenester til arbeidslivet. Vår kjernekompetanse er distribusjon fra bedrift til bedrift, på personnivå. Dette som følge av 25 år med erfaring fra direktemarkedsføring av kurs og konferanser mot yrkesaktive i fire land. 
 
